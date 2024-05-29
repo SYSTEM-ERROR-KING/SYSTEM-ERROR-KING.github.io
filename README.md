@@ -1,1 +1,1 @@
-# SYSTEM-ERROR-KING1.github.io
+# SYSTEM-ERROR-KING.github.io
